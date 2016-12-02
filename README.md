@@ -1,2 +1,16 @@
-# blog2
-Time to care for those who care
+#Time to care for those who care
+###Society needs its fringe activists to effect change and act as a conscience, but do they have any sort of support system?
+
+One of the most iconic moments of the late 20th century was that of a single protester standing in the way of a column of tanks about to go in to Tiananmen Square to crush a popular student-led protest. Ever wonder what possessed him to do such a thing? It has been nearly 25 years but his identity and fate remain unknown. In Malaysia, we are often taught not to rock the boat but the truth is that momentous change rarely happens without those activists who are willing to put their lives on the line for their cause. Without the Gandhis and Martin Luther Kings of this world, without the tens of thousands more unknown protesters, injustice and dictatorship would have a freer hand.
+
+I would like to take a look at an angle that is rarely explored. What makes someone an activist … and is there a correlation between those who seek out this life and mental illness? I know that sounds like a ready made joke but I mean it seriously. I am a young Malaysian student yet I am very passionate about the issue of a West Papua, the isolated half of the island of Papua that remains under virtual occupation by Indonesia. What is it that drives me to care so much about a place I have never visited?
+
+In my, albeit limited, experience with activism, I have noticed that there are some who are prepared to go overboard. Some who care so passionately that it seems to fill another void in their lives and is perhaps reflective of inner turmoil. This calls to mind the American radical Abbie Hoffmann and British loony protester Screaming Lord Sutch. Both men were famous for gimmicky stunts (Hoffmann once registered his pet pig for a presidential race and Sutch founded the Official Monster Raving Loony Party).
+
+Sadly both were also afflicted with bipolar disorder and eventually committed suicide (Hoffmann in 1989 and Sutch in 1999). In the realm of activism, things are not as simple as one might think. The endless call for championing human rights is the mantra of many hypocrites who hide behind the veil of so-called advocacy. Yet beneath the intellectualism there can be a disconnection with the reality on the streets. Activists who are eager to hold placards for strangers can be complacent and ignorant when it comes to those standing in the trenches next to them.
+
+One can witness passionate and intelligent people who can be stigmatised and ostracised in this most unusual of domains. Indeed the stigma attached to mental illness is the most significant obstacle to achieving a quality of life for individuals with this condition. I truly empathise with those who chose to strike out from the established path of academic achievement and material gain in order to pursue their utopic hope for a better society and a better quality of life for all.
+
+Yet when the challenge seems so big, the enemy so implacable, an activist’s world can fall apart. I know it is a “niche” cause but I would like to urge advocates not to focus too much on the big picture but to sometimes stop and take a look at the person next to them. In trying to achieve a vision for a better world, we have forgotten the vital importance of offering a strong support system to those who suffer silently. Let’s care for those who care.
+
+This post was originally published [from Star online](http://www.thestar.com.my/opinion/columnists/open-season/2014/04/28/time-to-care-for-those-who-care/)
